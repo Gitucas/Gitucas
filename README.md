@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+Say we spend 15 minutes on studying, 3 C's 1 F 2 B's 1 A, 0 community services, 2 meals per day, 0 snacks per day, 3 hours of Social media, 2 hours of video games and had 6 sleeping hours. This is a general description of my day (I wake up at 6AM and scroll until I get to school, then I go eat lunch there, fool around in most of the classes, and drive home. Afterwards I continue to study for 15 minutes and then go straight to playing video games for the next 2 hours, then I take a shower for approximately 6-7 minutes, then I go eat dinner. Now I doom scroll for 2 more hours and go to bed for 6 hours and repeat the cycle). I am trying to accomplish this (I'm trying to get straight A's in my classes and im trying to provide more community service hours while keeping a steady time management in my time studying.
 <!--
 **Gitucas/Gitucas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
